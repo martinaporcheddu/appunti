@@ -13,7 +13,6 @@ Nel maggio del 1964 Nono si recò nello stabilimento genovese dell’Italsider p
 Molti materiali musicali e letterari già creati per Un diario italiano vennero rielaborati e utilizzati per la nuova composizione: a parte dei corali Nono sostituì i testi con i nuovi redatti con Scabia sulla base dei materiali raccolti all’Italsider. In tal modo La fabbrica illuminata assumeva i caratteri di una composizione autonoma.
 Per la musica su nastro Nono ha utilizzato una selezione delle registrazioni del coro della RAI di Milano diretto da Giulio Bertola, la registrazione delle improvvisazioni su un canovaccio del mezzosoprano Carla Henius, voci e rumori registrati all’Italsider e suoni di sintesi. Questi materiali sono stati elaborati presso lo Studio di Fonologia della RAI di Milano, fusi tra loro e trasformati elettronicamente, fino a renderli spesso irriconoscibili. Scrive a riguardo Nono: «nessuna mimesis, nessun rispecchiamento. Nessuna arcadia industriale. Nessun naturalismo populista o popular».
 
- 
 > Bach ha musicato la passione di Cristo – mi disse un giorno Nono, – io la passione della classe operaia.    
 > - *Giuliano Scabia* (2011)
 
