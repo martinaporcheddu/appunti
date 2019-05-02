@@ -20,7 +20,7 @@ Per la musica su nastro Nono ha utilizzato una selezione delle registrazioni del
 
 Nel concetto di passione, secondo le parole stesse di Nono a Scabia, egli mette in musica la sofferenza dell’operaio che aliena la sua vita per il lavoro utile alla comunità al pari di Gesù che soffre e si sacrifica per il suo popolo. 
 
-In pittura, già Michelangelo, definisce Cristo un essere tragico nel senso umanistico del concetto, ossia pervaso dalla dignitas hominis, quella dignità dell’uomo che significa in questo contesto coscienza autonoma e libertà di scegliere la morte, pur vivendone l’angoscia nel suo approssimarsi. L’invito di Michelangelo a vivere l’esperienza  di Cristo nella solitudine etica e nella dimensione storica fu raccolto in particolare da Michelangelo Merisi da Caravaggio. Nella sua Deposizione.
+In pittura, già Michelangelo, definisce Cristo un essere tragico nel senso umanistico del concetto, ossia pervaso dalla dignitas hominis, quella dignità dell’uomo che significa in questo contesto coscienza autonoma e libertà di scegliere la morte, pur vivendone l’angoscia nel suo approssimarsi. L’invito di Michelangelo a vivere l’esperienza  di Cristo nella solitudine etica e nella dimensione storica fu raccolto in particolare da Michelangelo Merisi da Caravaggio nella sua *Deposizione*.
 
 Sull’enorme tela dipinta a olio di 3 metri per 2, Caravaggio raffigura il momento in cui il corpo martoriato del Cristo viene adagiato nel sepolcro. La figura del Cristo e inondata dalla luce, protagonista onnipresente e dalla forte valenza simbolica nelle opere caravaggesche. Il braccio destro ora esanime ci ricorda della forza che fino a poco tempo prima lo percorreva.
 I muscoli possenti ci appaiono paradossalmente in tirare e le vene cariche di quel sangue versato come sacrificio per il genere umano. In ombra, Giovanni stenta a sorreggere il corpo. Lo sforzo della sua presa è concentrato sulla mano che si aggrappa al costato ferito. È in questo dettaglio che vi è la citazione a un altro dei più grandi capolavori di tutti i tempi: *La Pietà* di Michelangelo.
@@ -30,3 +30,5 @@ Il significato intimo della perdita del figlio si contrappone alla teatralità d
 L’intero schema compositivo è stato realizzato prevedendo un’osservazione dal basso verso l’alto.
 
 Lo sfondo è completamente nero e dell’ambientazione emerge solo qualche roccia, una pianta in basso a sinistra e lo straordinario spigolo del coperchio del sepolcro che sembra bucare la tela per venire verso di noi. In questa splendida opera, Caravaggio ha saputo unire il suo profondo naturalismo con una monumentalità classica esaltata dai gesti solenni. Questo rivela l’ispirazione ad artisti come Raffaello e Michelangelo che l’autore ritrasse nel volto di Nicodemo, unica figura a guardare verso di noi.
+
+![Deposizione](https://upload.wikimedia.org/wikipedia/commons/thumb/a/ab/Caravaggio_-_La_Deposizione_di_Cristo.jpg/232px-Caravaggio_-_La_Deposizione_di_Cristo.jpg)
