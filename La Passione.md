@@ -1,5 +1,6 @@
 > I riferimenti continui di Nono erano soprattutto a Bach, ai suoi cori a cappella. (…) Come se la lingua per Nono (il suono della lingua, o una parte di esso), fosse là fuori, in quei cori e voci dei cortei e delle “passioni” operaie e contadine.    
 > - *Giuliano Scabia* (1990)
+
  
 > Bach ha musicato la passione di Cristo – mi disse un giorno Nono, – io la passione della classe operaia.    
 > - *Giuliano Scabia* (2011)
