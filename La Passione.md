@@ -1,10 +1,6 @@
 > I riferimenti continui di Nono erano soprattutto a Bach, ai suoi cori a cappella. (…) Come se la lingua per Nono (il suono della lingua, o una parte di esso), fosse là fuori, in quei cori e voci dei cortei e delle “passioni” operaie e contadine.    
 > - *Giuliano Scabia* (1990)
 
- 
-> Bach ha musicato la passione di Cristo – mi disse un giorno Nono, – io la passione della classe operaia.    
-> - *Giuliano Scabia* (2011)
-
 
 Con il concetto di passione, si intendono la sofferenza e l’agonia di Gesù che hanno portato alla sua crocifissione. Le narrazioni della passione, dal latino passio, hanno origine dai vangeli. La radice etimologica, dal verbo patior, patire inteso come soffrire. 
 
@@ -16,6 +12,11 @@ L’opera fu commissionata dalla RAI. Il progetto originale, poi abbandonato, mu
 Nel maggio del 1964 Nono si recò nello stabilimento genovese dell’Italsider per raccogliere materiali sulle condizioni di vita e di lavoro degli operai. Furono registrati su nastro magnetico rumori delle macchine e voci degli operai durante il percorso di produzione dell’acciaio; Scabia annotò parole, ordini, locuzioni gergali della fabbrica e raccolse pubblicazioni sindacali utili alla redazione del testo letterario.
 Molti materiali musicali e letterari già creati per Un diario italiano vennero rielaborati e utilizzati per la nuova composizione: a parte dei corali Nono sostituì i testi con i nuovi redatti con Scabia sulla base dei materiali raccolti all’Italsider. In tal modo La fabbrica illuminata assumeva i caratteri di una composizione autonoma.
 Per la musica su nastro Nono ha utilizzato una selezione delle registrazioni del coro della RAI di Milano diretto da Giulio Bertola, la registrazione delle improvvisazioni su un canovaccio del mezzosoprano Carla Henius, voci e rumori registrati all’Italsider e suoni di sintesi. Questi materiali sono stati elaborati presso lo Studio di Fonologia della RAI di Milano, fusi tra loro e trasformati elettronicamente, fino a renderli spesso irriconoscibili. Scrive a riguardo Nono: «nessuna mimesis, nessun rispecchiamento. Nessuna arcadia industriale. Nessun naturalismo populista o popular».
+
+ 
+> Bach ha musicato la passione di Cristo – mi disse un giorno Nono, – io la passione della classe operaia.    
+> - *Giuliano Scabia* (2011)
+
 
 Nel concetto di passione, secondo le parole stesse di Nono a Scabia, egli mette in musica la sofferenza dell’operaio che aliena la sua vita per il lavoro utile alla comunità al pari di Gesù che soffre e si sacrifica per il suo popolo. 
 
