@@ -1,9 +1,10 @@
 > I riferimenti continui di Nono erano soprattutto a Bach, ai suoi cori a cappella. (…) Come se la lingua per Nono (il suono della lingua, o una parte di esso), fosse là fuori, in quei cori e voci dei cortei e delle “passioni” operaie e contadine.    
-- *Giuliano Scabia* (1990)
+> - *Giuliano Scabia* (1990)
  
 > Bach ha musicato la passione di Cristo – mi disse un giorno Nono, – io la passione della classe operaia.    
-- *Giuliano Scabia* (2011)
- 
+> - *Giuliano Scabia* (2011)
+
+
 Con il concetto di passione, si intendono la sofferenza e l’agonia di Gesù che hanno portato alla sua crocifissione. Le narrazioni della passione, dal latino passio, hanno origine dai vangeli. La radice etimologica, dal verbo patior, patire inteso come soffrire. 
 
 L’opera di Nono è costantemente impregnata di impegno politico e attenzione alla contemporaneità sociale. Nel 64 con Giuliano Scabia realizza l’opera la fabbrica illuminata, dedicata al ruolo dell’operaio ed alla sua condizione di lavoro. 
